@@ -15,7 +15,7 @@
 - Looking to collaborate on **AI Projects**
 - Fun fact: I love exploring **new technologies**
 
-Reach me at: **lastw5232@gmail.com**
+Reach me at: **pathaknikesh555@gmail.com**
 
 ---
 
